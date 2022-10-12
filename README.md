@@ -12,3 +12,5 @@ No worries no stress
 It's cool
 HAKUNA MATATA as long as we 
 Wake up n sleep
+
+plus remember v is TOP G (actully it'd be top V)
